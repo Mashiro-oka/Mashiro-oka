@@ -21,7 +21,7 @@ I don't know much yet, but i'm curious, wiling to learn, and enjoying the proces
 
 Aside from coding, i enjoy listening to music, watching anime, and following VTubers.
 
-And yes, I'm a proud **Onigiryaa (おにぎりゃー)**!
+And yes, I'm a proud **Onigiryaa (おにぎりゃー) !**
 
 My oshi is **Nekomata Okayu (猫又おかゆ)** from hololive. 💜
 
