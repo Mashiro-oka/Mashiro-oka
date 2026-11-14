@@ -4,7 +4,7 @@ Just a newbie programmer who's still learning how to code.
 
 Im currently exploring programming and web development, trying to understand how things work and improve my skills one step at a time.
 
-I don't know much yet, but i'm curious, wiling to learn, and enjoying the process of building things, even if i occasionally break them. :v
+I don't know much yet, but i'm curious, wiling to learn, and enjoying the process of building things, even if i occasionally break them. 🗿
 
 ## 🌱 Currently Learning
 
